@@ -1,0 +1,2 @@
+# outpost
+Plan / Concept / Thought
